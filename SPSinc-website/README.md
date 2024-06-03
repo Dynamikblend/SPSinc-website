@@ -1,0 +1,1 @@
+The School Of Prime Systems INC. is a longstanding 501(c)(3) U.S.-based Organization, that has been supporting educational initiatives in Liberia since 2014.
